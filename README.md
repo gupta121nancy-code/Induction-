@@ -4,4 +4,4 @@
  
  <br>
     Then all students who came were assembled in auditorium. It was a calm place. There we recognised many honourable
-personalities.
+personalities like **Harpreet Kaur Grewal( HOD Of Applied Science)**,
