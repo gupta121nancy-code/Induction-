@@ -7,3 +7,4 @@
 personalities like **Harpreet Kaur Grewal** (HOD Of Applied Science),Dr.Sehajpal Singh (Principal),Dr.K.S Mann (HOD Of IT) and many one. I really inspired by such personalities as well as from our well performing seniors. I really enjoyed that unforgettable and memorable day.
 
 ## Day 2
+  In Morning, there is a Proficiency Test for us
