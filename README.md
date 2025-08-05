@@ -10,3 +10,4 @@ personalities like Harpreet Kaur Grewal (HOD Of Applied Science),Dr.Sehajpal Sin
   In Morning, there is a Proficiency Test for us which is monitored by our seniors. After that we had a break and then all students of CSE and IT again assembled in Auditorium. There we had an interactive session with a Reputed and Honourable Personality named _Dr.Jaswinder Singh_. He proves that science and mathematics is very interesting and simple to handle. He familiarised with many new Mathematical tricks and then _Dr. Arshdeep Sir_ gave a really noteable and important about food. Then our seniors gave a session about Causmic Club. It's really a Learning and Inspiring Day for me.
 
 # Day 3: _About Universal Human Values and Github_
+   We all CSE n IT students again assembled In Auditorium for another interactive sessions with Inspiring and Honourable Characters. There, Dr. Priya Darshni Madam introduce about _Universal Human Values_ which really means in our life. 
