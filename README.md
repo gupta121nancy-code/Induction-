@@ -7,4 +7,6 @@
 personalities like Harpreet Kaur Grewal (HOD Of Applied Science),Dr.Sehajpal Singh (Principal),Dr.K.S Mann (HOD Of IT) and many one. I really inspired by such personalities as well as from our well performing seniors. I really enjoyed that unforgettable and memorable day.
 
 ## Day 2
-  In Morning, there is a Proficiency Test for us which is monitored by our seniors. After that we had a break and then all students of CSE and IT again assembled in Auditorium. There we had an interactive session with a Reputed and Honourable Personality named _Dr.Jaswinder Singh_. He proves that science and mathematics is very interesting and simple to handle. He familiarised with many new Mathematical tricks and then Dr. Arshdeep Sir gave a really noteable and important about food. Then our seniors gave a session about Causmic Club. It's really a
+  In Morning, there is a Proficiency Test for us which is monitored by our seniors. After that we had a break and then all students of CSE and IT again assembled in Auditorium. There we had an interactive session with a Reputed and Honourable Personality named _Dr.Jaswinder Singh_. He proves that science and mathematics is very interesting and simple to handle. He familiarised with many new Mathematical tricks and then _Dr. Arshdeep Sir_ gave a really noteable and important about food. Then our seniors gave a session about Causmic Club. It's really a Learning and Inspiring Day for me.
+
+### Day 3: About Universal Human Values and Github
