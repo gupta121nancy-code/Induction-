@@ -14,3 +14,8 @@ personalities like Harpreet Kaur Grewal (HOD Of Applied Science),Dr.Sehajpal Sin
 
 # Day 4
    In Morning, We had an interactive lectures with our Professors. First was our English Lecture with Prof. Nisha, an attractive character. Tgere we introduce ouself turn wise in front of all and it such an amazing lesson for me. After that we intract with Dr. Rajvir Kaur for Chemistry Lecture and she is also honoured one. She taught that Chemistry is as easy as we take interest in that. Then we had an another session with Dr. Priya Darshni Madam in Auditorium. It was really a fun filled and learning day for me.
+
+# Day 5
+  I attended the lectures which was full of knowledge on this day. First lecture was Maths which was lectured by Prof. Sandeep Kaur. Then our seniors gave lecture about P2P which is about programming. After that third lecture was about BEEE by Prof. Sukhpal Singh and our lectures end. Then I explored the College Campus with my new friend and it was almost fun.
+
+# Day 6
