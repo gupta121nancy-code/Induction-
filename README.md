@@ -20,3 +20,6 @@ personalities like Harpreet Kaur Grewal (HOD Of Applied Science),Dr.Sehajpal Sin
 
 # Day 6
   Firstly I attended the lectures of _P2P_ by or seniors and _BEEE_ by _Prof. Sukhpal Singh_. After that we all CSE n IT students again attended the sessions gave in Auditorium. First Session was given by our Chief Guest _(Sr. Gurcharan Singh Grewal)_. It was really spiritual. Second session was given by _Dr. Lakhvir Singh Khana_ about _CML_ and _NPTEL_. It was really informative and useful in our future. I personally felt that I must join these for my _Bright Future_. After that a little fun-filled and motivative session by _Dr. Arvind Dhingra_. It was really amazing. I really enjoy these sessions.
+
+# Day 7
+  In Auditorium, we all students prayed first. Then we all get to know about _DMC (Digital Marketing Club)_ by Incharge of DMC, _Prof. Amit Kamra Sir_.
