@@ -11,10 +11,11 @@ personalities like Harpreet Kaur Grewal (HOD Of Applied Science),Dr.Sehajpal Sin
 
 # Day 3: _About Universal Human Values and Github_
    We all CSE n IT students again assembled In Auditorium for another interactive sessions with Inspiring and Honourable Characters. There, _Dr. Priya Darshni Madam_ introduce about _Universal Human Values_ which really means in our life. She actually taught that _"Happiness is our Goal of Life"_ and it is our main motive to achieve. Then Our Seniors acknowledged us about Github.
+   
 It is true that-
-    _"
+    _"Whose Goal is Happiness remains Happy all Life."_
 # Day 4
-   In Morning, We had an interactive lectures with our Professors. First was our _English Lecture_ with _Prof. Nisha_, an attractive character. Tgere we introduce ouself turn wise in front of all and it such an amazing lesson for me. After that we intract with _Dr. Rajvir Kaur_ for _Chemistry Lecture_ and she is also honoured one. She taught that Chemistry is as easy as we take interest in that. Then we had an another session with _Dr. Priya Darshni Madam_ in Auditorium. It was really a fun filled and learning day for me.
+   In Morning, We had an interactive lectures with our Professors. First was our _English Lecture_ with _Prof. Nisha_, an attractive character. There we introduce ouself turn wise in front of all and it such an amazing lesson for me. After that we intract with _Dr. Rajvir Kaur_ for _Chemistry Lecture_ and she is also honoured one. She taught that Chemistry is as easy as we take interest in that. Then we had an another session with _Dr. Priya Darshni Madam_ in Auditorium. It was really a fun filled and learning day for me.
 
 # Day 5
   I attended the lectures which was full of knowledge on this day. First lecture was _Maths_ which was lectured by _Prof. Sandeep Kaur_. Then our seniors gave lecture about _P2P_ which is about programming. After that third lecture was about _BEEE_  by _Prof. Sukhpal Singh_ and our lectures end. Then I explored the College Campus with my new friend and it was almost fun.
